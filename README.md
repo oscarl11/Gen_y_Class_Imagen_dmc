@@ -1,1 +1,0 @@
-# Gen_y_Class_Imagen_dmc
